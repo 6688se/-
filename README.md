@@ -4,11 +4,11 @@
 
 #
 
-****D1：http://www.javxee.com**** (如遇无法访问，网址前面换成https://尝试)
+****D1：http://www.javxee.com**** (如遇无法访问，网址前面换成https尝试)
 
-****D2：http://www.javpss.com**** (如遇无法访问，网址前面换成https://尝试)
+****D2：http://www.javpss.com**** (如遇无法访问，网址前面换成https尝试)
 
-****D3：http://www.javkee.com**** (如遇无法访问，网址前面换成https://尝试)
+****D3：http://www.javkee.com**** (如遇无法访问，网址前面换成https尝试)
 
 #
 
