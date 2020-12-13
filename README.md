@@ -2,11 +2,13 @@
 
 ****建议您按Ctrl + d收藏本页面，永远找到撸汉****
 
-****D1：www.javxee.com****
+#
 
-****D2：www.javpss.com****
+****D1：http://www.javxee.com**** (如遇无法访问，网址前面换成https://尝试)
 
-****D3：www.javkee.com****
+****D2：http://www.javpss.com**** (如遇无法访问，网址前面换成https://尝试)
+
+****D3：http://www.javkee.com**** (如遇无法访问，网址前面换成https://尝试)
 
 #
 
