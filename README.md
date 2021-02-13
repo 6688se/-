@@ -1,14 +1,12 @@
-****luhan 撸汉 - 地址发布页 2021.01.20 （请务必收藏此页面）****
+****luhan 撸汉 - 地址发布页 2021.02.13 （请务必收藏此页面）****
 
 ****建议您按Ctrl + d收藏本页面，永远找到撸汉****
 
 #
 
-****D1：http://www.javppa.com**** (如遇无法访问，网址前面换成https尝试)
+****D1：http://www.javzee.com**** (如遇无法访问，网址前面换成https尝试)
 
-****D2：http://www.javmss.com**** (如遇无法访问，网址前面换成https尝试)
-
-****D3：http://www.javxee.com**** (如遇无法访问，网址前面换成https尝试)
+****D2：http://www.javppa.com**** (如遇无法访问，网址前面换成https尝试)
 
 #
 
